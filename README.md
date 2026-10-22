@@ -16,4 +16,4 @@ Ngoài ra, mình luôn chú trọng đến trải nghiệm người dùng (UI/UX
 
 📫 **Liên hệ với mình:**
 *   Email: doanvthienhoang910@gmail.com
-*   LinkedIn: https://www.facebook.com/share/1CWRPxMcp2/?mibextid=wwXIfr
+*   LinkedIn: https://www.linkedin.com/in/doan-van-thien-hoang
